@@ -14,15 +14,12 @@ work only in windows pc/laptop
 tool linked with premium proxy update every 15secons 
 
 
-if you want to buy it contact me on telegram
+if you want to b/uy it contact me on telegram
 
-https://t.me/abrzi505
+https://t.me/rootabrzi
 
 or my instagram
 
 https://instagram.com/mdip?igshid=NTc4MTIwNjQ2YQ==
 
-
-
-
-* Note: this is a pro version tool not like old nromal tool
+Note: this is a pro version tool not like old nromal tools
